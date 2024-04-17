@@ -5,3 +5,7 @@ https://www.spiritlhl.net/
 Read more of the instructions document before asking questions.
 
 https://www.spiritlhl.net/en/
+
+赞助/Sponsor 
+
+https://afdian.net/a/spiritlhl
