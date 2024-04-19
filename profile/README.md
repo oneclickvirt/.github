@@ -8,4 +8,6 @@ https://www.spiritlhl.net/en/
 
 赞助/Sponsor 
 
+https://ko-fi.com/spiritlhl
+
 https://afdian.net/a/spiritlhl
