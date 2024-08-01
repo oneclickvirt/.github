@@ -11,3 +11,9 @@ https://www.spiritlhl.net/en/
 https://ko-fi.com/spiritlhl
 
 https://afdian.net/a/spiritlhl
+
+联系/Contact
+
+Telegram: [@spiritlhl_bot](https://t.me/spiritlhl_bot)
+
+Email: hithamlin871@gmail.com
