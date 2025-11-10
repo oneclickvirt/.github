@@ -18,4 +18,4 @@ Telegram Group: https://t.me/oneclickvirt
 
 https://ko-fi.com/spiritlhl
 
-<img src="https://github.com/user-attachments/assets/78bab50f-9e65-42ef-bad5-9430799afc1b" width="400" />
+<img src="https://github.com/user-attachments/assets/78bab50f-9e65-42ef-bad5-9430799afc1b" width="250" />
